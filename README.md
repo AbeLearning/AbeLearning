@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **datluong.brandeis24@gmail.com**
 
-- 📄 Know about my experiences [My Resume Is Here](https://drive.google.com/file/d/1cw8qoFPH20HY-KweiQqbGjiqAvlu5zB1/view?usp=sharing)
+- 📄 Know about my experiences [My Resume Is Here](https://drive.google.com/file/d/1Q07JXJUsufQ1mHzqLF9mFp--WgTCI1Bf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

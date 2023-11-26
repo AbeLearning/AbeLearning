@@ -10,7 +10,7 @@
 
 - 🔭 I’m looking for **Data Analyst / Business Analyst Position**
 
-- 📫 How to reach me **datluong.brandeis24@gmail.com**
+- 📫 How to reach me **hoangdat160@gmail.com**
 
 - 📄 Know about my experiences [My Resume Is Here](https://drive.google.com/file/d/1RX278S2RykWo1e5QCfV8Ry66u9V93Rpe/view?usp=sharing)
 
